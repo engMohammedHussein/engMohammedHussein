@@ -61,4 +61,4 @@
 Open to Senior/Lead opportunities in KSA, UAE, and Remote.
 
 Email: mohammedhuss222@gmail.com
-LinkedIn: linkedin.com/in/mohammed-daghmah-593696245
+LinkedIn: linkedin.com/in/mohammeddaghmah
