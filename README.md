@@ -3,7 +3,7 @@
 
 📍 Sana'a, Yemen
 📧 mohammedhuss222@gmail.com
-🔗 linkedin.com/in/mohammed-daghmah-593696245
+🔗 linkedin.com/in/mohammeddaghmah
 
 ---
 
